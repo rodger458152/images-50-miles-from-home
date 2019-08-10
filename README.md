@@ -1,2 +1,2 @@
 # images-50-miles-from-home
-a collection of images black&amp;white~colour~and hand coloued 
+a collection of images black & white~colour ~ and hand coloured 
